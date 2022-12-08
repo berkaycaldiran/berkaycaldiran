@@ -1,2 +1,1 @@
 - 👋 Hi, I’m Berkay!
-- 📫 How to reach me: twitter @berkaycaldiran
